@@ -18,3 +18,15 @@ Certificates of the data analysis and Python programming courses I have complete
 ![image](https://github.com/user-attachments/assets/f68d5991-4b5c-42cf-bd16-22bd9e07d453)
 ![image](https://github.com/user-attachments/assets/57d9faab-4d9b-453a-b25e-9e02f86e22f5)
 
+# Coursera
+![image](https://github.com/user-attachments/assets/3fb940ab-1b98-48bb-be56-29379341a77e)
+![image](https://github.com/user-attachments/assets/5241ac0c-7ae5-4537-8c22-42fa3cb4a756)
+![image](https://github.com/user-attachments/assets/6f7e1237-8b99-4c98-91bc-98df77f377db)
+![image](https://github.com/user-attachments/assets/bfbf8f02-ae9e-4d11-b510-c81158daf489)
+![image](https://github.com/user-attachments/assets/0ffb2f54-cd08-4905-a151-e5640b2d9ee2)
+![image](https://github.com/user-attachments/assets/6c274f4e-aa43-4a20-90f4-4694c831ab56)
+![image](https://github.com/user-attachments/assets/c58ce5eb-326b-47cb-ad41-58fbf5a2dccb)
+
+# FreeCodeCamp
+![image](https://github.com/user-attachments/assets/8b605c3f-0ddd-48ea-9ece-ab97d9034d53)
+![image](https://github.com/user-attachments/assets/37bf65b9-150a-4b13-b338-bce2b731cb5d)
